@@ -1,7 +1,6 @@
 - 👋 Hi, I’m Acorn!
 - 👀 I’m interested in art and coding a game far down the line.
 - 🌱 I’m currently learning nothing.
-- 💞️ I’m looking to collaborate on a game.
 - 📫 How to reach me: idk-
 - 😄 Pronouns: She/Her
 
